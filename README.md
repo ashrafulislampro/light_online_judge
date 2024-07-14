@@ -1,1 +1,1 @@
-# Problem Solving With Category wise
+# Problem Solving With Category Wise
